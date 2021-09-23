@@ -1,0 +1,4 @@
+- Hello you've found the GitHub of Patrick Harmon
+- I'm interested in becoming an Actuary and to put my various skills to use as a member of your team!
+- I'm currently studying for Exam FM and breezing through the Infinite Actuary's Technical Skills course.
+- You can reach me at PHarmonActuary@gmail.com
