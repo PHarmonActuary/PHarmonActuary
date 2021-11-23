@@ -1,4 +1,6 @@
 - Hello you've found the GitHub of Patrick Harmon
-- I'm interested in becoming an Actuary and to put my various skills to use as a member of your team!
+- I'm a graudating senior at George Mason University, with degrees in Math and Music.
+- I'm an aspiring Actuary who is interested in putting my various skills to use as a member of your team!
+- I have completed Exam P and coursework commensurate with the VEE credits for Economics, Mathematical Statistics, and Corporate Finance and Accounting.
 - I'm currently studying for Exam FM and breezing through the Infinite Actuary's Technical Skills course.
 - You can reach me at PHarmonActuary@gmail.com
